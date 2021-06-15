@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @rkirkland13
+- 👀 I’m interested in learning more about blockchains and Defi
+- 🌱 I’m currently learning how far I am out of the loop
+- 💞️ I’m looking to collaborate on not sure where I fit in.
+- 📫 How to reach me rkirklan@hotmail.com
